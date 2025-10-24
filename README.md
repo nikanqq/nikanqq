@@ -1,6 +1,5 @@
-20 y.o
+22 y.o
 
 Android Developer
 
-BSUIR student
 
